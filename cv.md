@@ -9,6 +9,7 @@
 ## About myself
 
 _I am creative, hardworking and purposeful._
+_blah-blah-blah_
 
 My goals:
 
